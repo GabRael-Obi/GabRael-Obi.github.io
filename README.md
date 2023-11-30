@@ -1,47 +1,6 @@
 # GabRael-Obi.github.io
 Jon Gabrael G. Obias
-# Our Lady of Peñafrancia Church
-![Facade](https://1.bp.blogspot.com/-
-IdsvMzVwpRI/T84TdDzLGGI/AAAAAAAADqc/QOD44MxBGh8/s1600/IMG_7888.JPG "Church Facade")
-*Our Lady of Peñafrancia Church Facade*
-Our Lady of Peñafrancia Shrine is a Roman Catholic church in the Philippines, located in Naga City. It is
-under the jurisdiction of the Archdiocese of Caceres. The church was formerly the home of the image of
-Our Lady of Peñafrancia, before the Peñafrancia Basilica was constructed. Our Lady of Peñafrancia is one
-of East Asia's greatest sites of Christian pilgrimage.
-The parish church is also the location of the Plaza Miguel Robles de Covarrubias, where the Traslacion
-procession of Our Lady of Peñafrancia begins, opening the Peñafrancia Festival.
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2vcnN4rPsM4?si=KIhOkItmcZMQt8o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboardwrite; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-*Clip: History of the Lady of Penafrancia*
+# My Top 5 Artists/Bands I Listen To Right Now
 
-### Schedule of Masses
-
-|  Sunday  |  Monday  |  Tuesday  |  Wednesday  |  Thursday  |  Friday  |  Saturday  |
-| -------- | -------- | --------- | ----------- | ---------- | -------- | ---------- |
-|  5:00am  |  5:00 am  |  5:00 am  |  5:00 am  |  5:00 am  |  5:00 am  |  5:00 am  |
-|  6:00 am  |  6:00 am  |  6:00 am  |  6:00 am  |  6:00 am  |  6:00 am  |  6:00 am |
-|  |  7:00 am  |  7:00 am  |  7:00 am  |  7:00 am  |  7:00 am  |  7:00 am  |
-|  7:30 am  | | | | | | |
-|  9:00 am  | | | | | | |
-|  11:00 am  | | | | | | |
-
-### Peñafrancia Festival
-![Voya](https://3.bp.blogspot.com/-
-N6RqGC7rpAk/V9D1kgLqXxI/AAAAAAAAKuQ/n0OT558YnpwF_V2effbivpxt7lXCq4XBwCLcB/s1600/20150
-919-penafrancia-naga-ads.jpg)
-
-Peñafrancia Festival is regarded as the biggest religious celebration in honor of the Blessed Virgin Mary
-in Asia. A month-long celebration, it is an annual cultural and religious festival held in honor of Our Lady
-of Peñafrancia. It is held every third Sunday of September in Naga City, Camarines Sur, Philippines.
-----
-### Address and Contact Info:
- **Peñafrancia Ave., PeÑafrancia, Naga City, Camarines Sur, Philippines**
-
-&nbsp; &nbsp; &nbsp; &nbsp;Address
-
- **63 946 333 2500**
-
-&nbsp; &nbsp; &nbsp; &nbsp;Mobile
-
- **olpparish310@gmail.com**
-
-&nbsp; &nbsp; &nbsp; &nbsp;Email
+### 5. Drake
+![alt text](data:image/jpeg;base64,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)

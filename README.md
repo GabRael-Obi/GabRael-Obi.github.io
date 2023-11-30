@@ -22,11 +22,6 @@ procession of Our Lady of Peñafrancia begins, opening the Peñafrancia Festival
 | 7:30 am | | | | | | |
 | 9:00 am | | | | | | |
 | 11:00 am | | | | | | |
-| 5:00 am | | | | | | |
-| | 5:30 pm | 5:30 pm | 5:30 pm | 5:30 pm | 5:30 pm | 5:30 pm |
-| 6:00 pm | | | | | | |
-| 7:00 pm | | | | | | |
-
 ### Peñafrancia Festival
 ![Voya](https://3.bp.blogspot.com/-
 N6RqGC7rpAk/V9D1kgLqXxI/AAAAAAAAKuQ/n0OT558YnpwF_V2effbivpxt7lXCq4XBwCLcB/s1600/20150

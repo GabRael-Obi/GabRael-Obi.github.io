@@ -1,6 +1,7 @@
 # GabRael-Obi.github.io
 Jon Gabrael G. Obias
-# My Top 5 Artists/Bands I Listen To Right Now
+# Best Indie Singer
 
-### 5. Motionless in White
-![alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fopen.spotify.com%2Fartist%2F6MwPCCR936cYfM1dLsGVnl&psig=AOvVaw2apEaZdKIpEmOWSKp7FjfG&ust=1701400454825000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCIigwcbj6oIDFQAAAAAdAAAAABAH)
+### Laufey
+
+![alt text]([image.jpg](https://hips.hearstapps.com/hmg-prod/images/laufey-press-photos-main-profile-photo-pc-gemma-warren-64fe866798f94.jpg?crop=1.00xw:0.668xh;0,0.0641xh&resize=1200:*)https://hips.hearstapps.com/hmg-prod/images/laufey-press-photos-main-profile-photo-pc-gemma-warren-64fe866798f94.jpg?crop=1.00xw:0.668xh;0,0.0641xh&resize=1200:*)
